@@ -1,1 +1,1 @@
-This was only for testing Puspouse xD
+This was only for testing Purpose xD
